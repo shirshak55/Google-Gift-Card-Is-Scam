@@ -22,7 +22,7 @@ Imagine if I had purchased 500$ gift card?
 
 So in conclusion
 - I will never purchase any gift card and please you also don't purchase it.
-- Google treats people like they are scamming in name of security. Honestly who don't loves free money.
+- Google treats people like they are scammer and they will not release your gift card. Honestly who don't loves free money.
 - Google Support is shit. They only follow rules which apply to california US.
 - I will never use google service like gmail, google etc with small exception like youtube with adsblock.
 - Google Play card is modern way to scam people.
