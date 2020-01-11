@@ -13,7 +13,7 @@ So I filled information. And waited it.
 
 I came back to my country Nepal which is neighbouring country of India. I heard no feedback from google and gift card was still not reddemable. So I called the google support and now they say provide us bills, gift card back photo. 
 
-Oh common I got the gift card from paytm how can I show you gift card photo. And they were asking for cellular bills or utility bills? I said to them I was intern and purchased gift card there I don't have phone number and bank access as Infosys had closed those before I came to my country.
+Oh common I got the gift card from paytm how can I show you gift card photo. And they were asking for cellular bills or utility bills? I said to them I was intern and purchased gift card there I don't have phone number and bank access as Infosys had closed those before I came to my country. So I gave them my offer letter which proves I was in Bangalore. And after 1-2 message they don't even reply.
 
 I submiteed forms like 11 times providing screenshot of paytm etc but no they don't reply. They just say due to high volume of cases it can take time.
 
