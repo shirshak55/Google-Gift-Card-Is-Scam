@@ -38,3 +38,9 @@ What google gained?
 
 
 I have uploaded payment and address_proof just to show I did really purchased the gift card
+
+
+Update: January 11. They replied saying " As per their update, they see that our specialists had informed that you can now successfully redeem the gift card to your account." but there is catch gift card doesn't work still.
+
+
+SCAMMER GOOGLE .
