@@ -26,3 +26,13 @@ So in conclusion
 -> Google Support is shit. They only follow rules which apply to california US.
 -> I will never use google service like gmail, google etc.
 -> Google Play card is modern way to scam people.
+
+What I lost?
+-> gift card
+-> time: 6 * 20 minutes of phone call
+
+What google gained?
+-> 8 Dollar 
+-> This post about how their system and support works.
+
+I have uploaded payment and address_proof just to show I did really purchased the gift card
