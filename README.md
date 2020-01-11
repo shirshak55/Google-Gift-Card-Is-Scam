@@ -1,6 +1,8 @@
 # Google-Gift-Card-Is-Scam
 Why one should never purchase gift card
 
+I am writing this with a hope other people wont get scammed by Google.
+
 
 Back in 2019, September I went to Infosys Bangalore, India for Internship in Machine Learning. There I had a account with ICICI Banks. And I used that bank account to hook up with Paytm app. Paytm is very useful in India as every vendors etc accept it and it is reliable app also.
 
