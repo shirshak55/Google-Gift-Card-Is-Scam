@@ -21,18 +21,18 @@ I submiteed forms like 11 times providing screenshot of paytm etc but no they do
 Imagine if I had purchased 500$ gift card? 
 
 So in conclusion
--> I will never purchase any gift card and please you also don't purchase it.
--> Google treats people like they are scamming in name of security. Honestly who don't loves free money.
--> Google Support is shit. They only follow rules which apply to california US.
--> I will never use google service like gmail, google etc.
--> Google Play card is modern way to scam people.
+- I will never purchase any gift card and please you also don't purchase it.
+- Google treats people like they are scamming in name of security. Honestly who don't loves free money.
+- Google Support is shit. They only follow rules which apply to california US.
+- I will never use google service like gmail, google etc.
+- Google Play card is modern way to scam people.
 
 What I lost?
--> gift card
--> time: 6 * 20 minutes of phone call
+- gift card
+- time: 6 * 20 minutes of phone call
 
 What google gained?
--> 8 Dollar 
--> This post about how their system and support works.
+- 8 Dollar 
+- This post about how their system and support works.
 
 I have uploaded payment and address_proof just to show I did really purchased the gift card
