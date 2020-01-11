@@ -8,6 +8,7 @@ I wanted to purchase some apps so I purchased gift card of around 8$. So what I 
 
 I tried to redeem it but it was saying Please provide more information.
 
+
 So I filled information. And waited it.
 
 I came back to my country Nepal which is neighbouring country of India. I heard no feedback from google and gift card was still not reddemable. So I called the google support and now they say provide us bills, gift card back photo. 
