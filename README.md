@@ -25,3 +25,4 @@ So in conclusion
 -> Google treats people like they are scamming in name of security. Honestly who don't loves free money.
 -> Google Support is shit. They only follow rules which apply to california US.
 -> I will never use google service like gmail, google etc.
+-> Google Play card is modern way to scam people.
