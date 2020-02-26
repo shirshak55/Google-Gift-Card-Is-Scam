@@ -46,3 +46,5 @@ Update: January 11. They replied saying " As per their update, they see that our
 
 
 SCAMMER GOOGLE .
+
+Update: After week publising this post i was able to redeem gift card. Finally got 8$ lol. And please don't purchase gift card If u don't want further complication in your life.
